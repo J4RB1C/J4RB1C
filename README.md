@@ -46,7 +46,7 @@ Chilling 🎶🎶🎶
  > 
 > 💼 Opted to Hire
  > 
-> 📜 02 Public Repositories 
+> 📜 01 Public Repositories 
  > 
 > 🔑 01 Private Repositories  
  > 
